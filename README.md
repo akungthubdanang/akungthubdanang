@@ -35,7 +35,7 @@ I love exploring the world of **technology, coding, and game development** — t
 ### 📫 Connect with Me
 - 💼 [LinkedIn](https://linkedin.com/in/your-link)
 - 🌐 [Portfolio Website](https://yourwebsite.com) *(coming soon!)*
-- ✉️ Email: **yourname@example.com**
+- ✉️ Email: **12401046@smkwikrama1garut.sch.id**
 
 ---
 
